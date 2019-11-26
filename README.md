@@ -1,1 +1,0 @@
-[mickeyloreti.com](https://mickeyloreti.com)
